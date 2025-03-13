@@ -5,7 +5,7 @@
 
 </i></b></h3>
 <h3 align="center">
-  <img src="https://i.imgur.com/dVaLQHq.jpeg" width="25"> 
+  <img src="https://files.catbox.moe/kk91mm.jpeg" width="25"> 
   &nbsp; 𝕎𝔼𝕃ℂ𝕆𝕄𝔼 𝕋𝕆 𝕊ℙ𝕀𝔻𝔼ℝ 𝕎𝔼𝔹 ℙℝ𝔼𝕄𝕀𝕌𝕄 𝕊ℂℝ𝕀ℙ𝕋 &nbsp;
   <img src="https://files.catbox.moe/ertgsq.jpg" width="25"> 
 </h3>
